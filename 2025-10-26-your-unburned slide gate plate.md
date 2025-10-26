@@ -1,4 +1,4 @@
-## A New Post
+## Hi.unburned slide gate plate
 
 The [Slide Gate Plate](https://hyrefr.com/product/unburned-slide-gate-plate/) System is used to cast molten steel into tundish or ingots in a controlled manner. The Slide Gate Plates are placed outside the ladle and consist of two refractory plates – one fixed and another moving. The fixed plate is also called top plate and sliding plate is also called bottom plate.
 
